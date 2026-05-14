@@ -1,4 +1,4 @@
-#  
+#  new Script for dragon adventures is the best dragon adventures Script, featuring aimbot and invisibility. Safe and powerful for all your needs.
 
 
 
